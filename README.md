@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Salim
+- 👀 I’m interested in Web Development and Software Development
+- 🌱 I’m currently learning Web Development
+- 💞️ I’m looking to collaborate on Online Learning PLatform
+- 📫 How to reach me Contact me on : salimpradhan77291188@outlook.com or www.facebook.com/Salim.BhuTan
